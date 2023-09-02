@@ -3,3 +3,7 @@ I am excited to apply for the position mentioned above, and I come with a unique
 
 I personally would like to go further with AI in my career as a software engineer.
 This Job would help me share the passion to fellow next generation African Leaders.
+
+Find attached Resume for your reference
+Regards,
+Alexander Chulu
